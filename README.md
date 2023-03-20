@@ -1,16 +1,11 @@
 -  Hi,i'm BOOF
 -  I’m interested in your mom
--  I’m currently learning how to unblock websites
+-  GOT AN UNBLOCKING PROXY IN REPLIT!
 - yeah
-- 📫 How to reach me... HE77#2697 DISCORD.GG
+- 📫 How to reach me... boofplayz@outlook.com!!!!
+go fw my shi!
 
-L.O.E FOREVER
-O V V
-Y E E
-A R R
-L   Y
-T   T
-Y   H
-    I
-    N
-    G
+
+
+
+love u guys <3
